@@ -1,4 +1,4 @@
-# Random: Why I think Percy Jackson is a Good Series
+# Why I think Percy Jackson is a Good Series
 ## My Opinion
 Percy Jackson is filled with action, mystries, and suspense. It helps one really dive into its plot nad what is happening. It allows people to play the scene inside your brain. Like all greek mythology books its a great read! You should reading it to.
 ![Percy Jackson](https://cdn.vox-cdn.com/thumbor/1Xa_PU18mKrTsjJUvdnO7wPj1F0=/1400x788/filters:format(jpeg)/cdn.vox-cdn.com/uploads/chorus_asset/file/19978609/200514_logan_lerman_percy_jackson.jpg)
